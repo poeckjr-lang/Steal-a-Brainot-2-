@@ -1,2 +1,4 @@
+Like the game and join the group
 # Steal-a-Brainot-2-
 OTG OTTÓ 13 
+Welcone to steal a brainot 2 
